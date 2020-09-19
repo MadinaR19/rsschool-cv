@@ -9,3 +9,4 @@
     * this year I'm finishing my senior year at Nazarbayev University, Nur-Sultan, Kazakhstan
     * I'm looking forward to gain practice in some cool project
     * some of my strengths: perseverence, discipline, positive attitude
+1. English level: Upper-Intermediate
